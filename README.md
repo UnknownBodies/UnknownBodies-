@@ -19,4 +19,6 @@ BIGGEST DNI: Pedo, Envy, Zionist, Ai user, Misogyny, Groomer/Manipulator, Guilt 
 
 About My Artwork and My pony skin:
 
-At first I let everyone passed but right now it's slowly making me frustrated. Do not copy/trace/reposted/take inspo of my art/skin, even with or without my permission, nor even if you're friend or close friend, I still do not let you passed🚫
+At first I let everyone passed but now it's slowly making me frustrated and crossing the line.
+
+Do not copy/trace/reposted/take inspo of my art/skin, even with or without my permission, nor even if you're friend or close friend, I still do not let you passed🚫
