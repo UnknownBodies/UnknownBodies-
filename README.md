@@ -17,7 +17,9 @@ Also please learn to accept when i declined to stay/listen or left, I don't real
 
 REMINDER ❗ ❗ ❗ 
 
-BIGGEST DNI: Pedo, Envy, Zionist, Ai user, Misogyny, Groomer/Manipulator, Guilt tripping, attention seekers, ragebaiters, stealers, Islamphobic, Homophobic, Asianphobic, Harassment, Incest, Trump supporters, gore porn, abusive or slavery jokes,Over sexualize, Low common sense/low sympathy or empathy
+BIGGEST DNI:
+
+Pedo, Envy, Zionist, Ai user, Racist, Misogyny, Groomer/Manipulator, Guilt tripping, attention seekers, ragebaiters, stealers, Islamphobic, Homophobic, Asianphobic, Harassment, Incest, Trump supporters, gore porn, abusive or slavery jokes, Over sexualize, Low common sense/low sympathy or empathy
 
 About My Artwork and My pony skin:
 
