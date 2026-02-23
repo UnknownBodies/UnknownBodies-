@@ -3,9 +3,11 @@ INTRO
 
 Hi my name is Una!!:]
 
-Fav colors: is Blue, purple, magenta and yellow | Birthday: 17 July | Intp 5w4 [cognitive function] (ew Mbti, stay away from me/jk/am i?)
+Fav colors: is Blue, purple, magenta and yellow | Birthday: 17 July | Intp 5w4 [cognitive function] (ew Mbti, stay away from me/jk)
 
-SPAGHETTI LOVERSSS. Also I'm Aroace and Genderfluid, My pronounce is Any/All (however u like lolz), and no, I'm not accepting any love confessions pls💔. Just a friend, ok?
+SPAGHETTI LOVERSSS. Also I'm Aroace and Genderfluid, My pronounce is Any/All (however u like lolz)
+
+Just a friend, ok? No love confessions(X)
 
 I'm a Multishipper and Multifandom, so it's really hard for me to hate at everything, unless it's REALLY problematic/IMO ok?
 
